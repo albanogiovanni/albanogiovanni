@@ -3,8 +3,7 @@
 
 ---
 
-I see art as structured emotion: an intention shaped into form.<br/>
-Meaning emerges only for those who understand its language.
+I see art as structured emotion: an intention shaped into form; Meaning emerges only for those who understand its language.
 
 ---
 
